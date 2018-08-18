@@ -1,3 +1,3 @@
 # devops-aula02
 
-Eminem, Daniel radcliff, brad pitt
+Eminem, Bred weasley, brad pitt, Jhonny depp
